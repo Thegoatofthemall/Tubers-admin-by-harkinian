@@ -1,2 +1,5 @@
 # Tubers-admin-by-harkinian
-Works in some games: https://discord.gg/Jhnr5hGr
+join the discord for the games list: 
+https://discord.gg/8s4JQ6sCNH
+
+NEW GAMES OUT EVERYDAY!! 😎👍👍🥳
